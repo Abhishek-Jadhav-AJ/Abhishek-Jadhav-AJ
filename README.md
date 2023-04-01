@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **jadhavabhishek1911@gmail.com**
 
-- 👯 I’m looking for **open source contribution🍉**
+- 👯 I’m looking for **open source contributions🍉**
 
 
 
